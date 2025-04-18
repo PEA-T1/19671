@@ -1,4 +1,5 @@
 การไฟฟ้าส่วนภูมิภาคขังหวัดเลย
+# https://app.jittawealth.com/install-app
 # [https://jittawealth.com/privacy-policy/](finance/quote/.INX:INDEXSP)
 
 # [1212](https://th.wikipedia.org/w/index.php?title=%E0%B8%9E%E0%B8%B1%E0%B8%99%E0%B8%88%E0%B9%88%E0%B8%B2%E0%B9%82%E0%B8%97&action=edit&redlink=1)
