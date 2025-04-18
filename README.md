@@ -1,3 +1,6 @@
+การไฟฟ้าส่วนภูมิภาคขังหวัดเลย
+
+
 # [1212](https://th.wikipedia.org/w/index.php?title=%E0%B8%9E%E0%B8%B1%E0%B8%99%E0%B8%88%E0%B9%88%E0%B8%B2%E0%B9%82%E0%B8%97&action=edit&redlink=1)
 # [853](https://th.wikipedia.org/w/index.php?title=%E0%B8%88%E0%B9%88%E0%B8%B2%E0%B8%AA%E0%B8%B4%E0%B8%9A%E0%B9%82%E0%B8%97&action=edit&redlink=1)
 # [884](https://th.wikipedia.org/w/index.php?title=%E0%B8%88%E0%B9%88%E0%B8%B2%E0%B8%AA%E0%B8%B4%E0%B8%9A%E0%B8%95%E0%B8%A3%E0%B8%B5&action=edit&redlink=1)
