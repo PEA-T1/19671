@@ -176,9 +176,9 @@
 ![https://www.pea.co.th/sites/default/files/images/management/old_board/chief_2-tawee.jpg](https://github.com/user-attachments/assets/3e06dc7d-1215-4da1-ab05-86bf7678b2fd)
 รัฐมนตรี การไฟฟ้า ส่วนกลาง จังหวัดเลย 
 พันจ่าโทวิศิษฎ์ ทองโม้
-
+https://th.wikipedia.org/#19671
 http://www.pea.co.th/#19671
-
+www.pea.co.th/#19671
 
 
   
